@@ -10,10 +10,9 @@
 ## 3. Sleep 
 ---
 # What I Played
-## 1. Mobile Legends
-## 2. My Boy Emulator
-## 3. Among Us
-## 4. Roblox
+## 1. [Mobile Legends](https://www.mobilelegends.com/)
+## 2. [My Boy Emulator](https://www.apkbe.com/app/com.fastemulator.gba)
+## 3. [Honkai Star Rail](https://hsr.hoyoverse.com/en-us/)
 ---
 # What I Watch 
 ## 1. [Pokemon](https://pokemondb.net/pokedex)
@@ -24,5 +23,3 @@
 ## [Facebook](https://www.facebook.com)
 ## [Tiktok](https://www.Tiktok.com)
 ---
-# [👋👨‍✋️👨‍🎤🤔👉👦](https://www.hootsuite.com/social-media-tools/emoji-translator)
-# ^Guess the Meaning of this^ Whoever Guess the Meaning of this i will give you 100 pesos.
