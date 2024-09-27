@@ -24,4 +24,4 @@
 ## [Facebook](https://www.facebook.com)
 ## [Tiktok](https://www.Tiktok.com)
 ---
-![you](https://github.com/user-attachments/assets/bf860caa-1b97-4216-839c-bc335d0b5c4f)
+[👋👨‍✋️👨‍🎤🤔👉👦](https://www.hootsuite.com/social-media-tools/emoji-translator)
