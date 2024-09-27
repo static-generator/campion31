@@ -1,7 +1,6 @@
 # 9-Campion
 Getting To Know Me
 # *Kyle Nathan T. Rodelas*
-> ## Milaor Camarines Sur
 ---
 # Below Here The Things I Do and I Like
 ---
